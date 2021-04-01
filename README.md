@@ -1,0 +1,2 @@
+# adriana
+JOIN THE SERVER 
